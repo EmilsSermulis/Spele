@@ -1,2 +1,10 @@
 # Spele
-s5tdjmngbfnvf
+s5tdjmngb
+
+
+
+
+
+
+
+treneris ir nikns
