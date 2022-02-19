@@ -21,6 +21,7 @@ Ieroči- jo tavs ierocis būs stiprāks jo ilgāk mērkaķi būs abdulināti. Ie
 veikals- kad pabeidz labirintu tu vari kaut ko nopirkt pa punktiem
 
 vēl idejas 
+
 veikalos varētu pārdot ēdienu lai dabūtu atpakaļ atņemtās dzīvības
 
 
