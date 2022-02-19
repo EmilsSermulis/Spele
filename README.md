@@ -20,7 +20,8 @@ mērkaķi- Kad tu ieskrien viņā tev atņem dzīvību. Viņus tu vari apturēt 
 Ieroči- jo tavs ierocis būs stiprāks jo ilgāk mērkaķi būs abdulināti. Ieročus var atras vai nopirkt
 veikals- kad pabeidz labirintu tu vari kaut ko nopirkt pa punktiem
 
-
+vēl idejas 
+veikalos varētu pārdot ēdienu lai dabūtu atpakaļ atņemtās dzīvības
 
 
 
